@@ -9,7 +9,7 @@ In questo repository ho raccolto:
 
 - le **slide** della lezione (miracolosamente complete, o quasi)
   
-- eventuali **link utili** a risorse online e gattini su internet per alleviare lo stress (ok, forse i gattini no, ma dovreste cercarli comunque)
+- altre **risorse utili** e gattini su internet per alleviare lo stress (ok, forse i gattini no, ma dovreste cercarli comunque)
   
 
 ## Disclaimer ufficioso
