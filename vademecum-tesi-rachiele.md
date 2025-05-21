@@ -1,1 +1,1 @@
-Ecco il link al mio Vademecum tesi: [https://docs.google.com/document/d/1CIigrXXZbiIVbmfSyNJrxNUf7qsZuVWrmLxqebCbInw/edit?usp=sharing](https://docs.google.com/document/d/1CIigrXXZbiIVbmfSyNJrxNUf7qsZuVWrmLxqebCbInw/edit?usp=sharing)
+Ecco il link al mio Vademecum tesi: [https://docs.google.com/document/d/1CIigrXXZbiIVbmfSyNJrxNUf7qsZuVWrmLxqebCbInw/edit?usp=sharing](https://docs.google.com/document/d/1CIigrXXZbiIVbmfSyNJrxNUf7qsZuVWrmLxqebCbInw/edit?usp=sharing). Probabilmente dovrete chiedere accesso al file.
