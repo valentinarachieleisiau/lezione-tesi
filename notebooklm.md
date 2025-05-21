@@ -10,4 +10,4 @@
 
 https://www.ilovephd.com/discovering-notebooklm-my-ai-companion-for-smarter-academic-research/
 
-[[Best FREE AI For Students - Google NotebookLM](https://thecomputerist.com/google-notebook-lm/)
+[Best FREE AI For Students - Google NotebookLM](https://thecomputerist.com/google-notebook-lm/)
